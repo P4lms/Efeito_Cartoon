@@ -7,6 +7,7 @@ Resolvi seguir o tutorial para aprender um pouco mais sobre o poder da visão co
 
 
 Abaixo estão as minhas redes aonde você pode me encontrar:
+
 [LinkedIn](https://www.linkedin.com/in/mateus-lulio/)
 
 [Twitter](https://twitter.com/LulioMateus)
